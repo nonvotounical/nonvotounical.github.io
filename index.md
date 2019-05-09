@@ -21,7 +21,7 @@ Se ci pensate bene sono proprio questi interessi che danno foga ai politicanti d
 Tutto sommato però mi vien da ridere. O meglio, mi dispiace per chi ancora si fa prendere per fesso, ma nello stesso tempo mi vien da ridere. Vedere questo enorme formicaio brulicare per pochi giorni e poi spegnersi nuovamente è buffo. Dovrebbero esserci elezioni tutti i giorni, almeno questo campus vivrebbe un pò, al posto di sembrare un enorme liceo, deserto dopo le ore di lezione, buio, pericoloso. Le iniziative proposte dai candidati strizzano l'occhio a quello che qualcuno nel campus fa da anni ormai, **senza ritorni economici, senza proclami elettorali, senza costose campagne**. La socialità e la vita nel campus non può essere una promessa elettorale, soprattutto se le parole provengono da mummie che negli altri giorni sono nascoste nei loro sarcofaghi.
 
 Scusate se vi ho tediato per troppo tempo, torno a studiare, si sta facendo tardi e fra poco mi manderanno via da questa aula. Sono sicuro che molti di voi si rispecchieranno nelle mie parole, quindi se accettate un consiglio **NON VOTATE**. Non siate dei polli, conservate un pò di dignità. Non fatevi prendere in giro da questi pagliacci. Il 14 e 15 Maggio fate altro, non siate parte attiva di questo sistema marcio e clientelare. Io, visto che non ho lezioni, penso di andare al parco a studiare e divertirmi, fai come me:
-## NON VOTARE, NON DELEGARE, ##LOTTA!
+## NON VOTARE, NON DELEGARE, LOTTA!
 
 
 _Condividi_
